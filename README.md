@@ -1,1 +1,1 @@
-# Nrolplay.pokemon
+https://nrolplay.mtxserv.com
